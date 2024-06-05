@@ -1,16 +1,17 @@
-## Hi there 👋
+##        ₍ ˃ ⤙ ˂ ₎   ﹒ 🫐  ，xeno aka milo eater !! 
 
-<!--
-**miloeater/miloeater** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<!--**miloeater/miloeater** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile. -->
 
-Here are some ideas to get you started:
+✦﹒—﹒—﹒—﹒✦﹒—﹒—﹒—﹒✦
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
+- 🔭 working on a rpg game!! 
+- 🌱 learn C# and js
 - 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 📫 contact me via discord @ http.xenonorsk! [comms open]
+- 😄 Pronouns: she / her
+- ⚡ astrophysics, math, artist <3
+
+✦﹒—﹒—﹒—﹒✦﹒—﹒—﹒—﹒✦
+
+
+
