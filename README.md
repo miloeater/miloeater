@@ -8,7 +8,6 @@
 - 🌱 learn C# and js
 - 🤔 I’m looking for help with ...
 - 📫 contact me via discord @ http.xenonorsk! [comms open]
-- 😄 Pronouns: she / her
 - ⚡ astrophysics, math, artist <3
 
 ✦﹒—﹒—﹒—﹒✦﹒—﹒—﹒—﹒✦
